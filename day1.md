@@ -1,4 +1,4 @@
-starting my 60 day journy
+starting my 60 day journey
 
 what i did:
 
